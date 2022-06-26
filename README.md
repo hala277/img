@@ -5,4 +5,4 @@
 
 ![image2](https://user-images.githubusercontent.com/75664971/175833818-212f7810-9c65-40ca-bff2-5697bfc91c05.jpg)
 
-![image3](https://media.istockphoto.com/photos/using-phone-in-a-front-of-neon-lights-on-the-street-picture-id1326660339?k=20&m=1326660339&s=612x612&w=0&h=pnTYBbzOmBQLDfpOevkxs97LYwuEc6QEpuXOxWRf87w=)
+![image3](https://media.istockphoto.com/photos/remote-work-and-study-online-application-and-social-networks-for-chat-picture-id1302986342?k=20&m=1302986342&s=612x612&w=0&h=kGVemuTc7oKbAJ4fJ3VwY-ro1OPFlKCNJUkBsfrrNK4=)
